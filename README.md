@@ -1,1 +1,0 @@
-# WALID-study-AI
